@@ -19,4 +19,4 @@ Before moving to Houston, I worked in technical support for U.S. users. That job
 - Interested in cybersecurity, data, and how AI can help real businesses
 
 ### 📫 Let's connect
-[LinkedIn](https://www.linkedin.com/in/TU-URL) · ccpadillamosquera@gmail.com
+[LinkedIn](https://www.linkedin.com/in/TU-URL) 
