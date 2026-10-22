@@ -32,4 +32,4 @@ On the security side: phishing analysis, Firestore security rules, IAM and least
 
 I play on the HCC basketball team, I speak English and Spanish, and I'm planning to transfer to the University of Houston to study Management Information Systems.
 
-📫 ccpadillamosquera@gmail.com · [LinkedIn](https://www.linkedin.com/in/TU-URL)
+📫 ccpadillamosquera@gmail.com · [LinkedIn](https://www.linkedin.com/in/cristobal-padilla-63b577228/)
